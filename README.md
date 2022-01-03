@@ -1,2 +1,2 @@
 # curriculo
-💡Curriculoonline
+💡Curriculoonline.
